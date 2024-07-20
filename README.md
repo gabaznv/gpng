@@ -62,3 +62,5 @@ convert.exe dubai4k.gpng
 
 # Why
 i dont even know, i just had the idea of making this
+
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/P5P610O2U7)
